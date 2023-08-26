@@ -1,1 +1,1 @@
-Tis is a modren website which also live
+This is a modren website which also live
